@@ -1,1 +1,1 @@
-# Mirthula
+# Miruthula
